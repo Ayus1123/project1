@@ -1,5 +1,6 @@
-![Screenshot (16)](https://github.com/Ayus1123/project1/assets/164751540/ab309eeb-1969-4ab2-956b-0f0afa39b5f4)
-![Screenshot (18)](https://github.com/Ayus1123/project1/assets/164751540/b5279409-e8ac-434d-ae75-f5ffc25e72d2)
+
+![Screenshot (21)](https://github.com/Ayus1123/project1/assets/164751540/693c6542-daef-45fc-a6fd-0fb897e2ea01)
+
 ![Screenshot (19)](https://github.com/Ayus1123/project1/assets/164751540/8eaad7e2-ec61-4587-8611-32c8d68ac12c)
 ![Screenshot (20)](https://github.com/Ayus1123/project1/assets/164751540/30bab2e3-9cd9-4420-98bd-01729f476d6c)
 ![Screenshot (20)](https://github.com/Ayus1123/project1/assets/164751540/f4df826c-f234-4f17-9baa-31d66e28f922)
